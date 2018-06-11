@@ -167,12 +167,12 @@ Development of SEO content and web pages for contracted clients
 ### Utah Valley University - Associates of Science
 
 Information Systems and Technology
-*Received in Fall 2017
+* Received in Fall 2017
 
 ### Utah Valley University - Bachelors of Science
 
 Information Systems - Application Development
-*Expected in Fall 2019
+* Expected in Fall 2019
 
 ## Community Involvement
 
