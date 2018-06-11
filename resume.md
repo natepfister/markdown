@@ -10,11 +10,12 @@
 ## Qualifications
 
 ---
-*Leading People, and Organizations
-*Customer Support, and Business-Client Relationships
-*Gathering, Compiling, and Summarizing Data
-*Organizing People, and Department Programs/Initiatives
-*Knowledge of Web Technologies and Business Services
+
+* Leading People, and Organizations
+* Customer Support, and Business-Client Relationships
+* Gathering, Compiling, and Summarizing Data
+* Organizing People, and Department Programs/Initiatives
+* Knowledge of Web Technologies and Business Services
 
 ## Accomplishments
 
